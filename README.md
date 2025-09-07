@@ -1,1 +1,1 @@
-# anime-motivation-hub.
+# anime-motivation-hub
